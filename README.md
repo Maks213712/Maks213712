@@ -4,4 +4,4 @@
 - 
 - 📫 How to reach me) my gmail is (makswaszak418@gmail.com)
 - 😄 Pronouns: he,him
-- ⚡ Fun fact:I like Steve jons (im a IOS user)
+- ⚡ Fun fact:I like Steve jobs (im a IOS user)
