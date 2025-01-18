@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Maks213712
 - 👀 I’m interested in (electronics)
-- 🌱 I’m currently learning (huw to ose linux is not much to learn bc is realy easy)
+- 🌱 I’m currently learning (how to use linux is not much to learn bc is realy easy)
 - 
 - 📫 How to reach me) my gmail is (makswaszak418@gmail.com)
 - 😄 Pronouns: he,him
-- ⚡ Fun fact: you can eat this mushroom only once 🍄
+- ⚡ Fun fact:I like Steve jons (im a IOS user)
